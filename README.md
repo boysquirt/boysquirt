@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=s1llycleric&label=stalkers.%20&color=4B0101&style=flat" </p>
 <p align="center">
 
-<img src="[https://files.catbox.moe/qpq3x2.gif](https://i.postimg.cc/cJqzdgK4/boris-pavlikovsky-theodore-decker-fliter-gold-sunset-channel-all-mode-normal.png)]" width="400" height="300" />
+<img src="[[https://files.catbox.moe/qpq3x2.gif](https://i.postimg.cc/cJqzdgK4/boris-pavlikovsky-theodore-decker-fliter-gold-sunset-channel-all-mode-normal.png)]](https://files.catbox.moe/8cjk0w.gif)" width="400" height="300" />
 <h6 align="center">
 ' for a minute there , 
   <h6 align="center" >
